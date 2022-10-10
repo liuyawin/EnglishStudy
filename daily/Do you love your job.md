@@ -1,4 +1,4 @@
-**Today we’re going to listen to Mike and Emily. Mike is furious. He’s been fired from his work. He comes home and talks about his story to Emily. Let’s listen to see why and how it happened. What does Mike decide to do after getting fired? Does he try to find another job in another company? Or does he decide to do something new?**       
+Today we’re going to listen to Mike and Emily. Mike is **furious**. He’s been fired from his work. He comes home and talks about his story to Emily. Let’s listen to see why and how it happened. What does Mike decide to do after getting fired? Does he try to find another job in another company? Or does he decide to do something new?       
  
 **Emily**: Hey Mike.    
 **Michael**: Hello    
@@ -15,10 +15,10 @@
 **Emily**: But as far as I know, you’ve always been doing well at work. I think there must be other reasons that they didn’t want to tell you.    
 **Michael**: I don’t know. I have no idea.    
 **Emily**: Do you remember the time **you inquired about your bonus**? They were having financial problems.    
-**Michael**: Yeah, you’re right. Actually, due to the influence of global economic recession in our co- company, our products didn’t sell well.    
+**Michael**: Yeah, you’re right. Actually, due to the influence of **global economic recession** in our co- company, our products didn’t sell well.    
 **Emily**: But it had nothing to do with you.    
-**Michael**: And you know it’s not reasonable to work overtime without extra pay also my salary was remained the same for about one year even when my company was operating well.    
-**Emily**: So it is clear enough that you haven’t been fired because of those reasons, they said. It was nothing other than an excuse. They are suffering from a financial crisis. Oh, how did you find this company, Michel?    
+**Michael**: And you know it’s not reasonable to **work overtime** without extra pay also my salary was remained the same for about one year even when my company was operating well.    
+**Emily**: So it is clear enough that you haven’t been fired because of those reasons, they said. **It was nothing other than an excuse.** They are suffering from a financial crisis. Oh, how did you find this company, Michel?    
 **Michael**: After University, **I was turned down by lots of companies** before **I was finally taken on by here**. I thought **it was a nine-to-five job**, but I had to work all hours almost every day, and my boss was constantly checking up on me to make sure I was hard at it.    
 **Emily**: But I’m sure Mike, if they didn’t get you the sack, **you yourself would decide to hand in your notice**.    
 **Michael**: You know when I’m thinking, I understand maybe **I wasn’t really cut out for this job**.    
@@ -31,8 +31,8 @@
 **Emily**: Yeah, you will be your own boss also an entrepreneur. You’ll have your own employees.     
 **Michael**: Isn’t it good to start from you?    
 **Emily**: Oh, I love my current job, but I promise to give you a hand in anything you need me.    
-**Michael**: Oh, I’m so happy to have such a considerate friend like you, Emily.      
-**Emily**: That’s very kind of you, Michel. I’m always at your service.     
+**Michael**: Oh, I’m so happy to have such a **considerate** friend like you, Emily.      
+**Emily**: That’s very kind of you, Michel. I’m always **at your service**.     
 
 **Did you enjoy listening to the story? Do you have similar experiences? I mean, have you ever given the sack? If yes, were you flabbergasted after it? Have you ever turned down by a company you dreamed of working for?**       
                
@@ -70,7 +70,7 @@
 **Michael**: And now, you dear learners, you tell us when the last time you turned down something in your life was? I mean, you rejected something in your life.      
 
 **To take somebody on**        
-**Emily**: The next expression is ‘to take somebody on.’ It means to employ someone.
+**Emily**: The next expression is ‘to take somebody on.’ It means to employ someone.      
 **Michael**: Oh, that’s very easy then.       
 **Emily**: Yeah, for example, Microsoft Company took me on, or I was taken on by Microsoft Company.        
 **Michael**: Now, you dear students, you answer us where would you like to be taken on?        
