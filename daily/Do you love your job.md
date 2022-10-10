@@ -1,4 +1,4 @@
-Today we’re going to listen to Mike and Emily. Mike is **furious**. He’s been fired from his work. He comes home and talks about his story to Emily. Let’s listen to see why and how it happened. What does Mike decide to do after getting fired? Does he try to find another job in another company? Or does he decide to do something new?       
+_Today we’re going to listen to Mike and Emily. Mike is **furious**. He’s been fired from his work. He comes home and talks about his story to Emily. Let’s listen to see why and how it happened. What does Mike decide to do after getting fired? Does he try to find another job in another company? Or does he decide to do something new?_       
  
 **Emily**: Hey Mike.    
 **Michael**: Hello    
@@ -24,8 +24,8 @@ Today we’re going to listen to Mike and Emily. Mike is **furious**. He’s bee
 **Michael**: You know when I’m thinking, I understand maybe **I wasn’t really cut out for this job**.    
 **Emily**: Yeah, working all hours with a salary **next to nothing** is really hard. I mean, if you are well paid, it’ll be worth it. But if you’re low paid with no bonus, so why should you waste your time working there?    
 **Michael**: Yeah, I think it’s **high time to run** my own business.    
-**Emily**: Oh, that’s wonderful. Why didn’t you think about it earlier?
-**Michael**: I don’t know; maybe I needed to be fired.    
+**Emily**: Oh, that’s wonderful. Why didn’t you think about it earlier?       
+**Michael**: I don’t know; maybe I needed to be fired.        
 **Emily**: I think **sedentary jobs** don’t suit you, Mike.    
 **Michael**: Yeah, other than that, I’ll have job security if I become self-employed. I shouldn’t be worried about my salary, my working hours, and the most important one being fired.    
 **Emily**: Yeah, you will be your own boss also an entrepreneur. You’ll have your own employees.     
@@ -34,7 +34,7 @@ Today we’re going to listen to Mike and Emily. Mike is **furious**. He’s bee
 **Michael**: Oh, I’m so happy to have such a **considerate** friend like you, Emily.      
 **Emily**: That’s very kind of you, Michel. I’m always **at your service**.     
 
-**Did you enjoy listening to the story? Do you have similar experiences? I mean, have you ever given the sack? If yes, were you flabbergasted after it? Have you ever turned down by a company you dreamed of working for?**       
+_Did you enjoy listening to the story? Do you have similar experiences? I mean, have you ever given the sack? If yes, were you flabbergasted after it? Have you ever turned down by a company you dreamed of working for?_          
                
 **Discussion Room**           
 **Michael**: Hello everybody, this is Michel, and today we are here with Emily for another discussion room for you.        
